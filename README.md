@@ -13,6 +13,6 @@
 
 <b> Get in Touch with me! <b>
 - Instagram: soniczoom11345@icloud.com (https://www.instagram.com/soniczoom11345/)
-- Discord: ran1sbluvale (https://discord.com/channels/@me/1022551579636813835)
+- Discord: ran1sbluvale
 
 - <b> In regards to instagarm, the usename is the same as my email address </b>
